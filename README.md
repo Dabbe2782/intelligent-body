@@ -23,3 +23,4 @@ And IFF SACRED KING SUPREME ELEGANT WILLS use magnetic fusion battery for contin
 and IFF SUPREME GOD WILLS carbon nanotube production is key for spinning wheels of anti gravity accelerators look youtu.be/porCfVeWyto at https://www.youtube.com/playlist?list=PLXuWpuJDnmlc3LH3H_I5lE-2VEEDQJSVA
 
 and both "space" & time dependence of non-linear neural activation functions is important: https://twitter.com/mesih_isa_66619/status/1643288551356809216?s=61
+"@ramin_m_h what do you say about for both “space(location)” and time dependent neural non-linear activation functions? Hence we live in space-time and so we are think in space-time! Not just in time… but also there are changes in space in life… right?"
