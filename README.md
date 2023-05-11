@@ -10,9 +10,9 @@ Back of Z axis of Neural Net/Brain: muscle movement output & touch input & sound
 
 3 Dimensional Layered Neuron Connections Hardware (artificial brain) provides different levels of abstraction connections between visual/touch/hearing/movement input/output generalizations for reasoning and talking and listening and teaching and learning and working tasks in one unified neural network model which is essential for artificial general intelligence
 
-and pay close attention to and use self awareness idea of Hod Lipson and Liquid Networks of Ramin Hasani while designing and implementing this artificial brain and word2vec idea is really important as far as I can see WITH WILL OF SACRED KING SUPREME ELEGANT
+and pay close attention to and use self awareness idea of Hod Lipson and Liquid Networks of Ramin Hasani while designing and implementing this artificial brain and word2vec idea is really important as far as I can see WITH WILL OF SACRED KING SUPREME ELEGANT https://youtube.com/playlist?list=PLXuWpuJDnmlccV1JDqy_025YgHfq1GOy9
 
-And use Body Muscles of like Clone Robotics IFF MY AND YOUR OWNER SACRED KING SUPREME ELEGANT GOD WILLS
+And use Body Muscles of like Clone Robotics IFF MY AND YOUR OWNER SACRED KING SUPREME ELEGANT GOD WILLS: https://youtube.com/playlist?list=PLXuWpuJDnmleQmv6K4CMyDgQo35LKvFFc
 
 And with artificial general intelligence and magnetic fusion battery and 6 Antigravity vtol vehicle you can grasp objects in space and move them to the earth safely for continuous tungsten needs for mass production of magnetic fusion battery IFF SACRED KING SUPREME ELEGANT WILLS
 
